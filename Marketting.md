@@ -1,1 +1,0 @@
-The main opponent is oculus rift 
